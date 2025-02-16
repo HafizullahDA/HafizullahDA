@@ -17,7 +17,7 @@
 - Solving real-world business problems using data  
 
 📫 **How to reach me:**  
-- LinkedIn: linkedin.com/in/hafizullah-lone-229377271 
+- LinkedIn: www.linkedin.com/in/hafiz1991 
 - Email: hafizullahlone@gmail.com
 
 ✨ **Fun fact:**  
