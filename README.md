@@ -1,4 +1,4 @@
-# Hi, I'm HafizullahDA 👋
+# Hi, I'm Hafizullah Lone 👋
 
 👀 **I'm interested in:**  
 - Data Analysis  
